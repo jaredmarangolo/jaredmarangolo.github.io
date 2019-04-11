@@ -1,1 +1,0 @@
-# jaredmarangolo.github.io
